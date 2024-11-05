@@ -1,1 +1,1 @@
-# plan_adidas
+# plan_godeok_central
